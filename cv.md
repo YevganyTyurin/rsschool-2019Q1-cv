@@ -12,4 +12,4 @@
 | **Education**  |
 | September 2016 - July 2021. Belarusian State University, Faculty of Mechanics and Mathematics.  Programme "Mathematics and Information Technologies (Mobile Devices Software)". Distance form of education. |
 | **Level of English**  |
-| September 2015 – May 2016. Upper Intermediate English course. |
+| September 2015 – May 2016. Upper Intermediate English course. Presently I visit Student English Club for speaking practice and watch different serials (using subtitles of course). |
